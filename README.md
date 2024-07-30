@@ -8,7 +8,6 @@ meu nome é roberta santos o
 ### voce pode entrar em contato comigo:📘
 
 00001133083237@Al.educacao.sp.gov.br
-
 ![]()
-![](https://tenor.com/pt-BR/view/adriana-lima-blowing-kiss-god-bless-bye-take-care-gif-10460493)
+![image](https://github.com/user-attachments/assets/f43af2ca-c85e-4b2d-9465-47ab0dba95b3)
 
